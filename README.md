@@ -1,0 +1,1 @@
+![](C:\Users\Galina\Desktop\Netology\Allure.png)
